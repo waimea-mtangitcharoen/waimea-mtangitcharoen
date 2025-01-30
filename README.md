@@ -14,4 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+# High school student
+
+Originally from Thailand but currently attending a high school in New Zealand.
+Reach me via instagram: @memimimoo
 💗🤩😺⭐
