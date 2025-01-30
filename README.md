@@ -17,5 +17,6 @@ Here are some ideas to get you started:
 # High school student
 
 Originally from Thailand but currently attending a high school in New Zealand.
+
 Reach me via instagram: @memimimoo
 💗🤩😺⭐
