@@ -19,4 +19,6 @@ Here are some ideas to get you started:
 Originally from Thailand but currently attending a high school in New Zealand.
 
 Reach me via instagram: @memimimoo
+
+Fun fact -> I LOVE REESE'S CUPS
 💗🤩😺⭐
